@@ -38,12 +38,3 @@ The operations followed a calculated and systematic approach:
    - **Body Disposal:** Bodies were dissolved or selectively disposed of to erase evidence.  
    - **Masquerade Churches:** The sites of massacres were repurposed into faux churches designed to identify and eliminate survivors or affiliates.  
 
----
-
-### Public Awareness  
-
-Through a combination of tactical precision, meticulous planning, and extensive cover-up campaigns, the Congregation Massacres remain hidden from the public eye. The perpetrators used masquerade churches, false emergency response operations, and systematic evidence elimination to maintain secrecy. This documentation aims to expose these atrocities and honor the victims who were silenced.
-
----
-
-For detailed accounts of individual massacres, follow the hyperlinks in the table above.
