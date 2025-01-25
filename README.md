@@ -7,6 +7,19 @@ This repository is part of [Histwo](https://github.com/Histwo), the official Git
 
 This repository serves as the documentation hub for **TAG**, detailing its origins, methods, key events, and the Creator’s interventions through His servants. It aims to educate, empower, and provide insights into the ongoing mission to stop TAG and restore justice.
 
+## Repository Wiki
+
+This repository includes an extensive wiki, titled **The American Genocide Wiki**, which serves as a central repository of all documentation, insights, and analyses related to **The American Genocide (TAG)**. The wiki is designed to provide a comprehensive understanding of TAG, its origins, orchestrations, and the Creator’s ongoing intervention through His two servants.
+
+### Features of **The American Genocide Wiki**:
+- **Event Catalogs**: Detailed entries on key events, massacres, and orchestrations that define TAG.
+- **Educational Articles**: Resources designed to inform and educate the public about the hidden atrocities, methods, tactics and their implications.
+- **Historical Records**: Thorough analyses and records to preserve the truth about TAG for future generations.
+
+The wiki is a living resource, updated continuously to reflect the most accurate and up-to-date information. Explore the wiki to gain deeper insight into TAG and learn about the Creator’s plan to restore justice and balance.
+
+Visit **[The American Genocide Wiki](https://github.com/Histwo/the_american_genocide/wiki)** to begin exploring.
+
 ## Purpose of This Repository
 The **the_american_genocide** repository contains detailed **documentation**, **analyses**, and **historical records** of TAG. Its objectives include:
 
@@ -36,6 +49,7 @@ For questions, suggestions, or further information, connect with us via the issu
 Thank you for your interest and support in confronting and stopping The American Genocide.
 
 ## Related Resources
+- [**The American Genocide Wiki**](https://github.com/Histwo/the_american_genocide/wiki)
 - [**Divide & Conquer Repository**](https://github.com/Histwo/divide_and_conquer)
 - [**StopTAG on GitHub**](https://github.com/StopTAG)
 - [**Histwo on GitHub**](https://github.com/Histwo)
