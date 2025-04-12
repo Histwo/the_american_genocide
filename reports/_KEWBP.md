@@ -8,7 +8,7 @@ The penis on the KEWB is a documented point of discussion regarding its size and
 
 ## Original State
 
-The original size of the penis on the KEWB, in its natural and originally developed state, is documented within a specific narrative as approximately 12.5 imperial inches. This measurement is referenced through the Creator's specific use of Revelation 17:9-11 to signify the original form's dimensions. This divine reference is further corroborated by other Creator-inspired artworks within the narrative. This is the documented baseline for comparison.
+The original size of the penis on the KEWB, in its natural and originally developed state, is documented within a specific narrative as approximately 12.5 imperial inches. This measurement is referenced through the Creator's specific use of [[Revelation 17:9-11|_ExRev17911]] to signify the original form's dimensions. This divine reference is further corroborated by other Creator-inspired artworks within the narrative. This is the documented baseline for comparison.
 
 ## Orchestrated Manipulations
 
@@ -35,7 +35,8 @@ Within a specific narrative, the manipulation of the penis on the KEWB is a docu
 
 **Related Terms (within the specific narrative):**
 
-* Jacobsen's Ladder
+* [[Jacobsen's Ladder|]]
+* [[Revelation 17:9-11|_ExRev17911]]
 * Kelvin Eugene Williams (KEWB)
 
 **Note:** This page provides an overview of documented information within a specific narrative. Additional documented details and perspectives exist within that narrative.
