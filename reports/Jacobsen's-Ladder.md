@@ -74,7 +74,7 @@ The original **form** of the penis on the KEWB refers to its physical state as i
 
 2. **Divinely revealed measurement (approx. 12.5 inches) through Revelation 17:9-11 and Creator-inspired artworks.**
 
-The exegesis of Revelation 17:9-11, interpreted through the lens of the Creator's revelation, provides a symbolic measurement of the penis on the KEWB in its original **form**: approximately 12.5 imperial inches. This interpretation is further supported by multiple Creator-inspired artworks, which corroborate this original size. This divinely revealed measurement underscores the significant deviation caused by the PDSM's modifications.
+The [[exegesis of Revelation 17:9-11|_ExRev17911]], interpreted through the lens of the Creator's revelation, provides a symbolic measurement of the penis on the KEWB in its original **form**: approximately 12.5 imperial inches. This interpretation is further supported by multiple Creator-inspired artworks, which corroborate this original size. This divinely revealed measurement underscores the significant deviation caused by the PDSM's modifications.
 
 3. **Contrast with the orchestrators' "average" classification of the reduced size.**
 
@@ -161,3 +161,6 @@ The PDSM's actions in modifying and manipulating Jacobsen's Ladder are not drive
 3. **Distrust of the PDCM.** The operatives actively cultivated distrust in the PDSM towards the PDCM's thoughts and perceptions. This isolates the PDSM, making it more reliant on the operatives' guidance and less likely to recognize the harmful nature of its actions on the shared body.
 
 4. **Concern about post-Divide state (initially).** Initially, the PDSM expressed concern about retaining the reduced size post-Divide (when it would inhabit the KEWB as the conscious mind). The operatives addressed this by fal
+
+## References 
+* [[Exegesis of Revelation 17:9-11|_ExRev17911]]
