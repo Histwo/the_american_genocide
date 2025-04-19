@@ -38,3 +38,7 @@ The operations followed a calculated and systematic approach:
    - **Body Disposal:** Bodies were dissolved or selectively disposed of to erase evidence.  
    - **Masquerade Churches:** The sites of massacres were repurposed into faux churches designed to identify and eliminate survivors or affiliates.  
 
+## Victim's Echoes
+"[[Victim's Echoes|Victim's-Echoes]]" is a collection of narratives that offers a harrowing and deeply personal glimpse into the atrocities of The American Genocide (TAG). Unlike traditional historical accounts, these stories are uniquely presented from the perspective of the victims themselves, providing an intimate and visceral understanding of the horrific events that unfolded.
+
+This collection is meticulously compiled based on direct revelations from the Creator to His servant. Each entry strives to be a truthful and vivid representation of specific historical occurrences within TAG, with the crucial aim of raising awareness about this ongoing and concealed genocide.
