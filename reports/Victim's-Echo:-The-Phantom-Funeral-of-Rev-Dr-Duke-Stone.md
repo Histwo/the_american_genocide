@@ -1,4 +1,4 @@
-# Victim's Echoes: The Phantom Funeral of Rev. Dr. Duke Stone
+# Victim's Echo: The Phantom Funeral of Rev. Dr. Duke Stone
 
 ## Preface
 
