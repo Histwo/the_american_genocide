@@ -42,3 +42,7 @@ The information presented in "Victim's Echoes" originates from direct revelation
 **Navigating This Collection:**
 
 Each entry in "Victim's Echoes" will focus on a specific event or individual experience within TAG. Please be aware that the content may be disturbing and emotionally challenging due to the nature of the events described. It is presented with the utmost respect for the victims and with the solemn intention of bearing witness to their suffering.
+
+Here's a brief description for the link to "The Phantom Funeral of Rev. Dr. Duke Stone":
+
+* [[Angela - The Phantom Funeral of Rev. Dr. Duke Stone|Victim's-Echo:-The-Phantom-Funeral-of-Rev-Dr-Duke-Stone]] This entry in "Victim's Echoes" recounts the horrifying experience of Angela at a deceptive "Phantom Funeral" for her former pastor, Rev. Dr. Duke Stone. Unaware that the original congregation was already massacred, Angela and other mourners are lured to the church, only to face a brutal mass execution orchestrated by figures involved in The American Genocide (TAG). The narrative chillingly portrays Angela's final moments and sensory experiences from a victim's perspective.
