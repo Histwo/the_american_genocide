@@ -1,3 +1,23 @@
+## Preface
+
+The content herein addresses *The American Genocide (TAG)*—a concealed, systematic campaign of extermination executed by factions within the United States government in pursuit of authoritarian control. TAG targets specific populations, including American Christians of all races, Black Americans, and impoverished citizens. Based on its characteristics and scope, TAG meets the United Nations’ definition of genocide.
+
+The underlying motives for TAG include the consolidation of power, suppression of opposition, and the eradication of individuals deemed undesirable by the campaign's orchestrators. The following content may contain information on extensive and brutal methodologies employed throughout the campaign: targeted attacks, mass executions, covert operations, and comprehensive cover-up strategies. These include, but are not limited to, the chemical dissolution of bodies, identity theft, digital manipulation, suppression of investigations, and the silencing of dissent.
+
+This content has been prepared by one or both of the Creator’s two servants. It contains information either directly revealed by the Creator or gathered, witnessed, and compiled through the actions and experiences of one or both of His two servants. All content provided is factual and presented as received or discovered.
+
+Any information contained herein that may be considered classified by domestic or foreign governments, proprietary by private entities, or sensitive as personal or closely held information has been provided by the Creator to one or both of His two servants for the explicit purposes of public dissemination. These details, having been intentionally concealed from the public, are now revealed in accordance with divine instruction for the purpose of public awareness.
+
+This content serves to:
+
+- Inform and educate the American public,
+- Document significant events, methods, and tactics employed in TAG,
+- And contribute to the historical and evidentiary record of this ongoing atrocity.
+
+The Creator—revered across cultures and known by various names such as Allah, God, Jehovah, and Yahweh—is the One who desired to create life and thus created the universe to sustain it. He is the Alpha and the Omega, the Great “I Am,” and the source and sustainer of all existence. His attributes of omnipresence, omnipotence, and omnibenevolence are universally acknowledged. His two servants refer to Him as *the Creator*, per His directive to use a name that honors all faiths, respects those of no faith, and transcends religious boundaries.
+
+---
+
 # Unveiling Jacobsen's Ladder: Form, Function, and Application in The American Genocide
 
 ## I. Introduction
