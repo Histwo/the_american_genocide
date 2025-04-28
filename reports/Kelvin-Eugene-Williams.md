@@ -8,21 +8,21 @@ It's crucial to understand these distinctions to navigate the information presen
 
 This is the legal and social identity of the individual in question, born on March 23, 1977. It refers to the whole person – mind and body – *before* the anticipated **Creator's Divide**.
 
-### Kelvin Eugene Williams, PDCM (Pre-Divide Conscious Mind)
+### [[Kelvin Eugene Williams, PDCM|]] (Pre-Divide Conscious Mind)
 
 * **PDCM** refers specifically to the **conscious mind** of Kelvin Eugene Williams *before* the Creator's Divide.
 * This is the aspect of Kelvin that is aware, thinks critically, makes decisions, and identifies as one of the Creator's two servants.
 * The PDCM is currently tasked with documenting **The American Genocide (TAG)**.
 * After the Creator's Divide, the PDCM is expected to inhabit a **different, separate physical body**.
 
-### Kelvin Eugene Williams, PDSM (Pre-Divide Subconscious Mind)
+### [[Kelvin Eugene Williams, PDSM|]] (Pre-Divide Subconscious Mind)
 
 * **PDSM** refers specifically to the **subconscious mind** of Kelvin Eugene Williams *before* the Creator's Divide.
 * Due to a rare phenomenon known as the **Classic Split**, the PDSM has developed a degree of autonomy and a perceived separate identity from the PDCM.
 * The PDSM can influence bodily functions and has been susceptible to external manipulation.
 * After the Creator's Divide, the PDSM is expected to become the **conscious mind** inhabiting the **original physical body** of Kelvin Eugene Williams (KEWB).
 
-### KEWB (Kelvin Eugene Williams Body)
+### [[KEWB|]] (Kelvin Eugene Williams Body)
 
 * **KEWB** is used to specifically refer to the **physical body** of Kelvin Eugene Williams *before* the Creator's Divide.
 * This is the biological vessel that currently houses both the PDCM and the PDSM.
