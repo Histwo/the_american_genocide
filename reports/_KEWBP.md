@@ -14,6 +14,8 @@ The original size of the penis on the KEWB, in its natural and originally develo
 
 The size and function of the penis on the KEWB have been subjected to deliberate and ongoing modifications. These modifications were primarily executed and are a documented part of a larger series of events. The term "Jacobsen's Ladder" refers to these alterations.
 
+See [[Debunking the 17" Myth|_Debunking17]]
+
 ## Jacobsen's Ladder
 
 "Jacobsen's Ladder" is the term for the penis on the KEWB when its size or function is different from its original state. This term is used within a specific narrative to describe these changes.
