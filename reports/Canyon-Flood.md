@@ -32,3 +32,7 @@ Canyon Flood was executed with a clear awareness of the impending divine interve
 ### V. The Critical Link: The 60 Perpetrators and Operation Nightfalls
 
 The 60 perpetrators from southwest Atlanta serve as the linchpin connecting the atrocities in Chattanooga to the planned false flag event in Atlanta. Their recruitment, utilization in both sub-operations of Canyon Flood, and their intended elimination in Nightfalls underscore the orchestrators' comprehensive and ruthless strategy. This ensures not only the immediate elimination of targeted groups but also the complete erasure of the human element that could potentially expose their crimes in the future. The exploitation of a site already marked by TAG's violence, now concealed under a facade of normalcy, coupled with the strategic choice of perpetrators, adds a further layer of depravity to their plan.
+
+## References 
+* [[Hickory Valley Christian Church|]]
+* [[Nightfalls|]]
